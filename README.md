@@ -5,4 +5,4 @@ Participantes:
 - Alejandro Mendieta Luna - Ingeniería Civil (C.C 1077842017)
 
 
-Enlace del video para la entrega 2: 
+Enlace del video para la entrega 2: https://youtu.be/qj3go7BulfA
